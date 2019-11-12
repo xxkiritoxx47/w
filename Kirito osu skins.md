@@ -26,3 +26,9 @@
 
 # [Other DT skin](http://download2267.mediafire.com/qgw2nfzuavxg/sjahpcauqfzi10l/-++++++++++++++++Other+DT+skin.osk)
 ![](https://osu.ppy.sh/ss/14102631/f0e0)
+
+# [No mod 1](http://download2267.mediafire.com/xxboi6yksdwg/n9se0zaeexzp45y/-++++++++++++++++No+mod.osk)
+![](https://osu.ppy.sh/ss/14102637/8340)
+
+# [No mod 2](http://download849.mediafire.com/lvi6n0d4etng/ulkexzjfodreum3/-++++++++++++++++No+mod+2.osk)
+![](https://osu.ppy.sh/ss/14102640/83bb)
