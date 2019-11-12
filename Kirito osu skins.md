@@ -6,6 +6,9 @@
 # [Whitecat Remake](https://download2268.mediafire.com/xe6zdkktcrjg/3853wivkr2cdot6/-++++++++++++++++Whitecat+Remake.osk)
 ![](https://osu.ppy.sh/ss/14102563/90eb)
 
+# [Dumii RyuK](https://download843.mediafire.com/yis3v7644gzg/5bivyq5ss79i8yh/-++++++++++++++++Dumii+ryuk.osk)
+![](https://osu.ppy.sh/ss/14104249/c13f)
+
 # [Dracula](https://download1646.mediafire.com/aqr9p7qswvvg/dpcw6htwh2667xf/-++++++++++++++++Dracula.osk)
 ![](https://osu.ppy.sh/ss/14102577/717f)
 
