@@ -1,9 +1,9 @@
 # Kirito skins w
 
-# [Elohere Kirito](https://download1650.mediafire.com/fq3w2ol0wbdg/s4j7s39thz8sijt/-++++++++++++++++Elohere.osk)
+# [Elohere Kirito](http://www.mediafire.com/file/s4j7s39thz8sijt/-_Elohere.osk/file)
 ![](https://osu.ppy.sh/ss/14102508/9782)
 
-# [Whitecat Remake](https://download2268.mediafire.com/xe6zdkktcrjg/3853wivkr2cdot6/-++++++++++++++++Whitecat+Remake.osk)
+# [Whitecat Remake](mediafire.com/file/3853wivkr2cdot6/-_Whitecat_Remake.osk/file)
 ![](https://osu.ppy.sh/ss/14102563/90eb)
 
 # [Dumii RyuK](https://download843.mediafire.com/yis3v7644gzg/5bivyq5ss79i8yh/-++++++++++++++++Dumii+ryuk.osk)
