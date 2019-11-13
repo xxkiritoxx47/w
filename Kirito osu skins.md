@@ -1,5 +1,8 @@
 # Kirito skins w
 
+# [Default Kirito](https://www.mediafire.com/file/47cg160jtr0rw03/-________________Default.osk/file)
+![](https://osu.ppy.sh/ss/14108932/b0a5)
+
 # [Elohere Kirito](http://www.mediafire.com/file/s4j7s39thz8sijt/-_Elohere.osk/file)
 ![](https://osu.ppy.sh/ss/14102508/9782)
 
