@@ -1,5 +1,8 @@
 # Kirito skins w
 
+# [Morgan final](https://www.mediafire.com/file/g3vnwznws17ze1y/-_+_morgan_final.osk/file)
+![](https://osu.ppy.sh/ss/14121576/6551)
+
 # [Default Kirito](https://www.mediafire.com/file/47cg160jtr0rw03/-________________Default.osk/file)
 ![](https://osu.ppy.sh/ss/14108932/b0a5)
 
