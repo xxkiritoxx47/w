@@ -9,9 +9,6 @@
 # [Elohere Kirito](http://www.mediafire.com/file/s4j7s39thz8sijt/-_Elohere.osk/file)
 ![](https://osu.ppy.sh/ss/14102508/9782)
 
-# [Whitecat Remake](https://www.mediafire.com/file/0h8fx5dck8owiao/-________________Whitecat_Remake.osk/file)
-![](https://osu.ppy.sh/ss/14102563/90eb)
-
 # [Dumii RyuK](http://www.mediafire.com/file/5bivyq5ss79i8yh/-_Dumii_ryuk.osk/file)
 ![](https://osu.ppy.sh/ss/14104249/c13f)
 
