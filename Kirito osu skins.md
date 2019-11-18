@@ -3,6 +3,12 @@
 # [Morgan final](https://www.mediafire.com/file/g3vnwznws17ze1y/-_+_morgan_final.osk/file)
 ![](https://osu.ppy.sh/ss/14121576/6551)
 
+# [Vaxei](https://www.mediafire.com/file/5h804uktz8pc2zy/-_________________Vaxei.osk/file)
+![](https://osu.ppy.sh/ss/14130791/be6e)
+
+# [Morgan final](https://www.mediafire.com/file/g3vnwznws17ze1y/-_+_morgan_final.osk/file)
+![](https://osu.ppy.sh/ss/14121576/6551)
+
 # [Default Kirito](https://www.mediafire.com/file/47cg160jtr0rw03/-________________Default.osk/file)
 ![](https://osu.ppy.sh/ss/14108932/b0a5)
 
@@ -14,9 +20,6 @@
 
 # [Dracula](http://www.mediafire.com/file/dpcw6htwh2667xf/-_Dracula.osk/file)
 ![](https://osu.ppy.sh/ss/14102577/717f)
-
-# [Vaxei Kirito](http://www.mediafire.com/file/xnd5kmfg3c2jf2p/-_DT.osk/file)
-![](https://osu.ppy.sh/ss/14102583/90b5)
 
 # [Shige but Kirito](http://www.mediafire.com/file/9h0jweca3qg0bjx/-_Shige_but_kirito.osk/file)
 ![](https://osu.ppy.sh/ss/14102589/cfa9)
