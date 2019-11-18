@@ -1,7 +1,7 @@
 # Kirito skins w
 
-# [Morgan final](https://www.mediafire.com/file/g3vnwznws17ze1y/-_+_morgan_final.osk/file)
-![](https://osu.ppy.sh/ss/14121576/6551)
+# [Hvick](https://www.mediafire.com/file/srz7oin9r3yr8as/-_________________Hvick.osk/file)
+![](https://osu.ppy.sh/ss/14130805/cf40)
 
 # [Vaxei](https://www.mediafire.com/file/5h804uktz8pc2zy/-_________________Vaxei.osk/file)
 ![](https://osu.ppy.sh/ss/14130791/be6e)
