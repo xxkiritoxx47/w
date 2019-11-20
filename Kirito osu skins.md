@@ -1,5 +1,8 @@
 # Kirito skins w
 
+# [Elohere Kirito](https://www.mediafire.com/file/ght67waviriznih/-________________Elohere_Kirito.osk/file)
+![](https://osu.ppy.sh/ss/14136240/2f3c)
+
 # [Randon skin](https://www.mediafire.com/file/2lked7rbitsw1ql/-_________________Randon_Skin.osk/file)
 ![](https://osu.ppy.sh/ss/14130831/00b0)
 
