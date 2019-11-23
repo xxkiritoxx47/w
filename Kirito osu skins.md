@@ -1,5 +1,7 @@
 # Kirito skins w
 
+# [Another elohere .-.](https://www.mediafire.com/file/tl4qt16c7ywzvcu/-_________________epic_elohere.osk/file)
+
 # [Elohere with colors](https://www.mediafire.com/file/ard1nnc1o4440e9/-________________Elohere_with_colors.osk/file)
 ![](https://osu.ppy.sh/ss/14140572/5154)
 
