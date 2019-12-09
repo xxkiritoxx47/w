@@ -1,5 +1,15 @@
 # Kirito skins w
 
+# [Kiritov2](http://www.mediafire.com/file/9i8t08wz1o9wegk/-_KiritoV2.osk/file)
+![](https://osu.gatari.pw/ss/6HIB78O5.jpg)
+
+# [Kirito Tuna](https://www.mediafire.com/file/714c5ita66xseaq/-__________________Kirito_Tuna.osk/file)
+![](https://osu.gatari.pw/ss/47TLQWO8.jpg)
+
+# [Kirito Gayz](http://www.mediafire.com/file/jup4t1rnvwz8zdr/-_Kirito_Gayz.osk/file)
+![](https://osu.gatari.pw/ss/J6YYIQL1.jpg)
+
+
 # [Kirito](https://www.mediafire.com/file/d6792ts7x1fmwp7/-__________________Kirito.osk/file)
 ![](https://osu.ppy.sh/ss/14198681/e7ef)
 
