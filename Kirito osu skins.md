@@ -1,5 +1,8 @@
 # Kirito skins w
 
+# [Kiritov3](https://www.mediafire.com/file/lzpl3d3mqnqz9tv/-____________________Kiritov3.osk/file)
+![](https://osu.ppy.sh/ss/14251059/6d4e)
+
 # [Kiritov2](http://www.mediafire.com/file/9i8t08wz1o9wegk/-_KiritoV2.osk/file)
 ![](https://osu.gatari.pw/ss/6HIB78O5.jpg)
 
