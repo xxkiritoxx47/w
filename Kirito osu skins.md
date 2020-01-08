@@ -1,5 +1,8 @@
 # Kirito skins w
 
+# [Kiritov4 (current)](https://www.mediafire.com/file/3y86z9b29ni4097/-_____________________KiritoV4.osk/file)
+![](https://osu.ppy.sh/ss/14341502/6a03)
+
 # [Kirito Rafis](https://www.mediafire.com/file/nmvernkgppoemfg/-____________________Kirito_Rafis.osk/file)
 ![](https://osu.ppy.sh/ss/14336774/540e)
 
