@@ -1,6 +1,9 @@
 # Kirito skins w
 
-# [Kiritov4 (current)](https://www.mediafire.com/file/3y86z9b29ni4097/-_____________________KiritoV4.osk/file)
+# [w](https://www.mediafire.com/file/yazu0lb7m28l4lk/-___________________w.osk/file)
+![](https://osu.ppy.sh/ss/14442029/e841)
+
+# [Kiritov4](https://www.mediafire.com/file/3y86z9b29ni4097/-_____________________KiritoV4.osk/file)
 ![](https://osu.ppy.sh/ss/14341502/6a03)
 
 # [Kirito Rafis](https://www.mediafire.com/file/nmvernkgppoemfg/-____________________Kirito_Rafis.osk/file)
@@ -12,8 +15,8 @@
 # [Kiritov2](http://www.mediafire.com/file/9i8t08wz1o9wegk/-_KiritoV2.osk/file)
 ![](https://osu.gatari.pw/ss/6HIB78O5.jpg)
 
-# [Dtzada pora](https://www.mediafire.com/file/k7i16nqnf76ve4j/-________________DTZADA_PORRA.osk/file)
-![](https://osu.ppy.sh/ss/14229109/326f)
+# [Dtzada pora](https://www.mediafire.com/file/30pkq2in8q70mo8/-_________DTZADA_PORRA.osk/file)
+![](https://osu.ppy.sh/ss/14442019/86d8)
 
 # [Kirito Tuna](https://www.mediafire.com/file/714c5ita66xseaq/-__________________Kirito_Tuna.osk/file)
 ![](https://osu.gatari.pw/ss/47TLQWO8.jpg)
