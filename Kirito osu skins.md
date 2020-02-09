@@ -1,7 +1,13 @@
 # Kirito skins w
 
-# [w](https://www.mediafire.com/file/yazu0lb7m28l4lk/-___________________w.osk/file)
-![](https://osu.ppy.sh/ss/14442029/e841)
+# [w2 (nomod/hd)](https://www.mediafire.com/file/2tclnua2vuedx97/-___________________w2.osk/file)
+![](https://osu.ppy.sh/ss/14466787/f3cf)
+
+# [w(dt)](https://www.mediafire.com/file/90hrpqos7j163x5/-___________________w.osk/file)
+![](https://osu.ppy.sh/ss/14466790/095b)
+
+# [Kiritov4 but w](https://www.mediafire.com/file/ycbjzllt7ymssj0/-___________________w_-1.osk/file)
+![](https://osu.ppy.sh/ss/14466796/d5c5)
 
 # [Kiritov4](https://www.mediafire.com/file/3y86z9b29ni4097/-_____________________KiritoV4.osk/file)
 ![](https://osu.ppy.sh/ss/14341502/6a03)
