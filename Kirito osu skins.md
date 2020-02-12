@@ -1,7 +1,7 @@
 # Kirito skins w
 
-# [w2 (nomod/hd)](https://www.mediafire.com/file/2tclnua2vuedx97/-___________________w2.osk/file)
-![](https://osu.ppy.sh/ss/14466787/f3cf)
+# [w2 (nomod/hd)](https://www.mediafire.com/file/rhvlswq78podnum/-_____________________w2.osk/file)
+![](https://akatsuki.pw/ss/GZ1NU2B7.png)
 
 # [w(dt)](https://www.mediafire.com/file/90hrpqos7j163x5/-___________________w.osk/file)
 ![](https://osu.ppy.sh/ss/14466790/095b)
