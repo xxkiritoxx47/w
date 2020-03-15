@@ -1,5 +1,8 @@
 # Kirito skins w
 
+# [Rafis dt a](https://www.mediafire.com/file/xv1wpj70spui1ow/-_____________Rafis_dt_a.osk/file)
+![](https://osu.ppy.sh/ss/14613082/a02a)
+
 # [w2 (nomod/hd)](https://www.mediafire.com/file/rhvlswq78podnum/-_____________________w2.osk/file)
 ![](https://akatsuki.pw/ss/GZ1NU2B7.png)
 
