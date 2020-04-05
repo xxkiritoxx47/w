@@ -1,5 +1,8 @@
 # Kirito skins w
 
+# [Merami](https://www.mediafire.com/file/bjgkzvudi4g3lxr/-________________________aetrnaaberrateFujiwara_v3.osk/file)
+![](https://osu.ppy.sh/ss/14715796/83b9)
+
 # [Rafis dt a](https://www.mediafire.com/file/xv1wpj70spui1ow/-_____________Rafis_dt_a.osk/file)
 ![](https://osu.ppy.sh/ss/14613082/a02a)
 
