@@ -1,5 +1,11 @@
 # Kirito skins w
 
+# [BlooMoon](https://www.mediafire.com/file/vs8p3i59op6kurd/-_______________________%u300EBlooMoon%u300F_-.osk/file)
+![](https://osu.ppy.sh/ss/14716037/60fb)
+
+# [BlooMoon DT](https://www.mediafire.com/file/hcdy20h720zj1kc/-_______________________%u300EBlooMoon_DT%u300F_-.osk/file)
+![](https://osu.ppy.sh/ss/14716023/8543)
+
 # [bakanyakanyaikakanyai](https://www.mediafire.com/file/e0t8lnieoc39tnb/-_______________________-+bakanyakanyaikakanyai+-.osk/file)
 ![](https://osu.ppy.sh/ss/14716005/8241)
 
