@@ -1,5 +1,8 @@
 # Kirito skins w
 
+# [bakanyakanyaikakanyai](https://www.mediafire.com/file/e0t8lnieoc39tnb/-_______________________-+bakanyakanyaikakanyai+-.osk/file)
+![](https://osu.ppy.sh/ss/14716005/8241)
+
 # [Rafis dt w foda](https://www.mediafire.com/file/maa6quigiol11fe/-____________________Rafis_dt_w_foda.osk/file)
 ![](https://osu.ppy.sh/ss/14715980/01d5)
 
