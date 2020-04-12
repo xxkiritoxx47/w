@@ -1,10 +1,10 @@
 # Kirito skins w
 
 # [Pedriboy but Kurumi](https://www.mediafire.com/file/doj9vmlbjb50oir/-______________________pedriboy_but_kurumi.osk/file)
-![](https://ibb.co/vP1pSb5)
+![]()
 
 # [Pedriboy DT but Kurumi](https://www.mediafire.com/file/wrtr42rihj5i0rw/-______________________pedriboy_DT_but_kurumi.osk/file)
-![](https://imgur.com/kNvANkI)
+![]()
 
 # [BlooMoon](https://www.mediafire.com/file/d0u7nhe7r2lzqtw/-_%25E3%2580%258EBlooMoon%25E3%2580%258F_-.osk/file)
 ![](https://osu.ppy.sh/ss/14716037/60fb)
