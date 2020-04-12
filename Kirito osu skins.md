@@ -1,7 +1,7 @@
 # Kirito skins w
 
 # [Pedriboy but Kurumi](https://www.mediafire.com/file/doj9vmlbjb50oir/-______________________pedriboy_but_kurumi.osk/file)
-![](https://imgur.com/a/O2aNv9k)
+![](https://ibb.co/vP1pSb5)
 
 # [Pedriboy DT but Kurumi](https://www.mediafire.com/file/wrtr42rihj5i0rw/-______________________pedriboy_DT_but_kurumi.osk/file)
 ![](https://imgur.com/kNvANkI)
