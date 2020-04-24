@@ -1,5 +1,14 @@
 # Kirito skins w
 
+# [zzzzzzzzzz](https://www.mediafire.com/file/45kqnkiifqmz011/-____________________________zzzzzzzzzz.osk/file)
+![](https://osu.ppy.sh/ss/14807599/3d3d)
+
+# [Elohere2](https://www.mediafire.com/file/6if8hmx3gxg5eeu/-___________________________Elohere_2.osk/file)
+![](https://osu.ppy.sh/ss/14807618/110a)
+
+# [Elohere Kurumi](https://www.mediafire.com/file/mqwfpi9px7fyyy3/-___________________________Elohere.osk/file)
+![](https://osu.ppy.sh/ss/14807613/5db7)
+
 # [Pedriboy but Kurumi](https://www.mediafire.com/file/doj9vmlbjb50oir/-______________________pedriboy_but_kurumi.osk/file)
 ![](https://osu.ppy.sh/ss/14752146/b29c)
 
