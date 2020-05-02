@@ -1,5 +1,8 @@
 # Kirito skins w
 
+# [zzzzzzzzzzv2](https://www.mediafire.com/file/9bvkecue4hxhoz8/-_zzzzzzzzzz2.osk/file)
+![](https://osu.ppy.sh/ss/14852060/0a24)
+
 # [zzzzzzzzzz](https://www.mediafire.com/file/45kqnkiifqmz011/-____________________________zzzzzzzzzz.osk/file)
 ![](https://osu.ppy.sh/ss/14807599/3d3d)
 
