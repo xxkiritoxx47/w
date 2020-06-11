@@ -1,7 +1,7 @@
 # Kirito skins w
 
-# [zzzzzzzzzzv2](https://www.mediafire.com/file/vlkvxczi2u11n9s/-_zzzzzzzzzz_2.osk/file)
-![](https://osu.ppy.sh/ss/14852060/0a24)
+# [zzzzzzzzzz new](https://www.mediafire.com/file/9d3eih0vgmifzbe/-____________________________zzzzzzzzzz.osk/file)
+![](https://osu.gatari.pw/ss/HA7FB9SX.jpg)
 
 # [Shige but Kirito](https://www.mediafire.com/file/io8glk00axlnwut/-_____________________Shige_But_Kirito.osk/file)
 ![](https://osu.ppy.sh/ss/14862329/d4ee)
