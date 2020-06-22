@@ -1,7 +1,11 @@
 # Kirito skins w
 
+
 # [zzzzzzzzzz new](https://www.mediafire.com/file/9d3eih0vgmifzbe/-____________________________zzzzzzzzzz.osk/file)
 ![](https://osu.gatari.pw/ss/HA7FB9SX.jpg)
+
+# [bakanyakanyaikakanyai](https://www.mediafire.com/file/htn463kywqp6jh5/-_-%252Bbakanyakanyaikakanyai%252B-.osk/file)
+![](https://osu.ppy.sh/ss/15110752/487d)
 
 # [Shige but Kirito](https://www.mediafire.com/file/io8glk00axlnwut/-_____________________Shige_But_Kirito.osk/file)
 ![](https://osu.ppy.sh/ss/14862329/d4ee)
@@ -26,9 +30,6 @@
 
 # [BlooMoon DT](https://www.mediafire.com/file/hcdy20h720zj1kc/-_______________________%u300EBlooMoon_DT%u300F_-.osk/file)
 ![](https://osu.ppy.sh/ss/14716023/8543)
-
-# [bakanyakanyaikakanyai](https://www.mediafire.com/file/e0t8lnieoc39tnb/-_______________________-+bakanyakanyaikakanyai+-.osk/file)
-![](https://osu.ppy.sh/ss/14716005/8241)
 
 # [Rafis dt w foda](https://www.mediafire.com/file/maa6quigiol11fe/-____________________Rafis_dt_w_foda.osk/file)
 ![](https://osu.ppy.sh/ss/14715980/01d5)
