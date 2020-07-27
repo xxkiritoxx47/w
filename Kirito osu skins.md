@@ -28,7 +28,7 @@
 # [BlooMoon](https://www.mediafire.com/file/d0u7nhe7r2lzqtw/-_%25E3%2580%258EBlooMoon%25E3%2580%258F_-.osk/file)
 ![](https://osu.ppy.sh/ss/14716037/60fb)
 
-# [BlooMoon DT](https://www.mediafire.com/file/hcdy20h720zj1kc/-_______________________%u300EBlooMoon_DT%u300F_-.osk/file)
+# [BlooMoon DT](https://www.mediafire.com/file/hcdy20h720zj1kc/-_%25E3%2580%258EBlooMoon_DT%25E3%2580%258F_-.osk/file)
 ![](https://osu.ppy.sh/ss/14716023/8543)
 
 # [Rafis dt w foda](https://www.mediafire.com/file/maa6quigiol11fe/-____________________Rafis_dt_w_foda.osk/file)
