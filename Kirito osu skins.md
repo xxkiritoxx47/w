@@ -86,9 +86,6 @@
 # [Elohere Kirito](https://www.mediafire.com/file/ght67waviriznih/-________________Elohere_Kirito.osk/file)
 ![](https://osu.ppy.sh/ss/14136240/2f3c)
 
-# [Randon skin](https://www.mediafire.com/file/2lked7rbitsw1ql/-_________________Randon_Skin.osk/file)
-![](https://osu.ppy.sh/ss/14130831/00b0)
-
 # [Elohere Kiritov2](https://www.mediafire.com/file/lwfqx85z5hpg7f3/-________________Elohere2.osk/file)
 ![](https://osu.ppy.sh/ss/14130817/ccd6)
 
