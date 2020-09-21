@@ -1,8 +1,8 @@
 # Kirito skins w
 
 
-# [zzzzzzzzzz new](https://www.mediafire.com/file/9d3eih0vgmifzbe/-____________________________zzzzzzzzzz.osk/file)
-![](https://osu.gatari.pw/ss/HA7FB9SX.jpg)
+# [w](https://www.mediafire.com/file/dczrylaqrogxycn/-+++++++++++++++++wwwwwww.osk/file)
+![](https://cdn.discordapp.com/attachments/621787307112005642/757532996982276177/screenshot465.jpg)
 
 # [bakanyakanyaikakanyai](https://www.mediafire.com/file/htn463kywqp6jh5/-_-%252Bbakanyakanyaikakanyai%252B-.osk/file)
 ![](https://osu.ppy.sh/ss/15110752/487d)
